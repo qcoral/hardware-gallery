@@ -1,0 +1,3 @@
+# Hardware gallery
+
+FINISHING WHAT I STARTED LONG AGO.
